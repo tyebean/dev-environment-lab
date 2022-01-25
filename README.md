@@ -1,4 +1,4 @@
-<img src= "https://i.imgur.com/4Tr8y5w.png">
+<img src= "https://i.imgur.com/SwO8I0a.png">
 
 ## OS
 
